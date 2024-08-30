@@ -8,6 +8,10 @@ Meu nome é **Giovana**
 
   ### Você entra em contato comigo
 
-
-
 0000112036162xSP@al.educacao.sp.gov.br
+
+@gioomorales_
+
+![](https://media1.tenor.com/m/VhkZ2fDafnQAAAAC/rapunzel-tangled.gif)
+
+
